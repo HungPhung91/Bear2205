@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Bear2205
+- 👋 Hi, I’m @Bear11820
 - 👀 I’m interested in crypto
 - 🌱 I’m currently learning business
 - 💞️ I’m looking to collaborate Github
